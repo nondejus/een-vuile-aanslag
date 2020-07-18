@@ -1,2 +1,0 @@
-# aanslag
-justified massacre
